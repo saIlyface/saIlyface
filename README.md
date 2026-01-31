@@ -1,4 +1,5 @@
-[![image](https://media.discordapp.net/attachments/1423160071285903440/1466059979537518804/Untitled334_20260128081826.png?ex=697b5e41&is=697a0cc1&hm=6c22eafc3dc74fe01ca4a11c0458f7699bb5e978674fd56da6164529bc7c749d&=&format=webp&quality=lossless&width=224&height=104)](https://sallyfaceirl.straw.page)
-[![image](https://media.discordapp.net/attachments/1423160071285903440/1466059978958962950/Untitled334_20260128081830.png?ex=697b5e41&is=697a0cc1&hm=3f653b014eb4130fc47cbb25ec33f7881bc8220e8b853553f1841f4ede3fb5dd&=&format=webp&quality=lossless&width=224&height=104)](https://sallyface.atabook.org)
-[![image](https://media.discordapp.net/attachments/1423160071285903440/1466059978077900820/Untitled334_20260128081834.png?ex=697b5e40&is=697a0cc0&hm=c6e70c1941dc63fa3d8e62f3cdc931ced8b850983f00a6e5a88f09807492a24b&=&format=webp&quality=lossless&width=224&height=104)](https://pronouns.cc/@salface)  
-ㅤㅤㅤㅤ<img width="561" height="750" alt="Untitled327_20260124232908" src="https://github.com/user-attachments/assets/3cf852c9-557b-4798-ab4d-668ab9d220b9" />
+[<img width="224" height="104" alt="Untitled354_20260131092454" src="https://github.com/user-attachments/assets/eeac2c07-15be-43c2-a058-85e2823279dc" />](https://sallyfaceirl.straw.page)
+[<img width="224" height="104" alt="Untitled354_20260131092618" src="https://github.com/user-attachments/assets/e85edf0d-1a5b-4847-8dbe-2a561b4b3a63" />](https://sallyface.atabook.org)
+[<img width="224" height="104" alt="Untitled354_20260131092552" src="https://github.com/user-attachments/assets/918ce79f-1160-4373-90ad-0d8c41a17dbd" />](https://pronouns.cc/@salface)  
+ㅤㅤㅤㅤ<img width="561" height="750" alt="Untitled355_20260131093458" src="https://github.com/user-attachments/assets/23227c08-5855-48ac-b8a8-6d4f16890647" />
+
